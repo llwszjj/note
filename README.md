@@ -1,0 +1,3 @@
+# note
+
+just record somethind for study...
